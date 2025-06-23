@@ -7,6 +7,10 @@
 
 点击访问：七四猫福利导航<a href="https://74mao.com/">（74mao.com）</a>
 
+点击访问：<a href="https://74mao.com/">74猫导航主站</a>
+
+点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
+
 点击访问：<a href="https://cg1-43.pages.dev/">网打尽</a>
 
 点击访问：<a href="https://cg2-43.pages.dev/">畅享不停歇</a>
@@ -36,10 +40,6 @@
 点击访问：<a href="https://hj-162.pages.dev/">影视官方网页版观看网站</a>
 
 点击访问：<a href="https://chiguaqunzhongde.pages.dev/">吃瓜群众的吃瓜网站 </a>
-
-点击访问：<a href="https://hls-40.pages.dev/">黑料社首页</a>
-
-点击访问：<a href="https://hls-15.pages.dev/">精选热门影视资源</a>
 
 点击访问：<a href="https://hls-36.pages.dev/">黑料入口</a>
 
